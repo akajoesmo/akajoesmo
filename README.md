@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...anything and everything
 - 🤔 I’m looking for help with ...what ever mentioned
 - 💬 Ask me about ...leave that up to you
-- 📫 How to reach me: ...github.com/akajoesmo
+- 📫 How to reach me: ...github.com/akajoesmo,akajoesmo@outlook.com,joesmo5150@outlook.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
